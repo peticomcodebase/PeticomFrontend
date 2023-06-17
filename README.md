@@ -1,1 +1,1 @@
-# peticom.com.tr
+# https://www.peticom.com.tr
